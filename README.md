@@ -35,326 +35,382 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Epigrams and sentences spirituall in vers, of Gregori Nazanzen, an auncient & famous bishop in the G
+
+1. To the righte honorable, the right reuerent father in God Edmonde Bishoppe of London, his very good Lorde and Maister, Tho. Drant wisheth grace and peace with long and ioyful life, in the euerliuing God through Christe our Sauiour.
+
+1. 〈 in non-Latin alphabet 〉.
+
+1. De Gregorio ad Lectores.
+
+1. Ad Gregorium
+
 #####Body#####
 
-1. Tvvo kindes of life, Actiue, and Contemplatiue.
+1. W. C. Doctor, to the translation.
+Tvvo kindes of life, Actiue, and Contemplatiue.Whiche lyfe of twayne doth better seame to thee,That 
+    _ Tvvo kindes of life, Actiue, and Contemplatiue.
 
-1. Trie thy selfe, before thou intermedle with holy matters.
+    _ Trie thy selfe, before thou intermedle with holy matters.
 
-1. Truste not lightly nor cauill muche.
+    _ Truste not lightly nor cauill muche.
 
-1. A shame for a teacher to be reprouable.
+    _ A shame for a teacher to be reprouable.
 
-1. Let Bishops, and Prelates geue light.
+    _ Let Bishops, and Prelates geue light.
 
-1. VVel doing is better then wel saying.
+    _ VVel doing is better then wel saying.
 
-1. An acceptable offring vnto God.
+    _ An acceptable offring vnto God.
 
-1. Make no vowe to God.
+    _ Make no vowe to God.
 
-1. Mans life a market.
+    _ Mans life a market.
 
-1. The race of Christian life.
+    _ The race of Christian life.
 
-1. Nor presume, nor dispaire.
+    _ Nor presume, nor dispaire.
 
-1. Kepe on thy course in vertue.
+    _ Kepe on thy course in vertue.
 
-1. All occasion of euill is to be shunned.
+    _ All occasion of euill is to be shunned.
 
-1. Knowe thy selfe. Good deedes better then golde.
+    _ Knowe thy selfe. Good deedes better then golde.
 
-1. Study godlines: Charme thy tongue.
+    _ Study godlines: Charme thy tongue.
 
-1. Temptation by thy eies.
+    _ Temptation by thy eies.
 
-1. Temptation by the eares.
+    _ Temptation by the eares.
 
-1. Temptation by the other senses.
+    _ Temptation by the other senses.
 
-1. Be not to liberal to thy belly.
+    _ Be not to liberal to thy belly.
 
-1. Laughter must be laughed at.
+    _ Laughter must be laughed at.
 
-1. Fauour and deformitie.
+    _ Fauour and deformitie.
 
-1. Contempte of vanities.
+    _ Contempte of vanities.
 
-1. The highnesse and humblenesse of good vvorkes.
+    _ The highnesse and humblenesse of good vvorkes.
 
-1. Against vayne glorie and dissimulation.
+    _ Against vayne glorie and dissimulation.
 
-1. Take not pryde in prayse, Prayse not rashly.
+    _ Take not pryde in prayse, Prayse not rashly.
 
-1. Pleasure not in deriding an other.
+    _ Pleasure not in deriding an other.
 
-1. Triumphe ouer no man.
+    _ Triumphe ouer no man.
 
-1. Better clere conscience in aduersitie, then feare of iudgement in vvelth.
+    _ Better clere conscience in aduersitie, then feare of iudgement in vvelth.
 
-1. Almesse measure.
+    _ Almesse measure.
 
-1. Almesse dealing.
+    _ Almesse dealing.
 
-1. As vve are affected to the poore, so is Christe to vs.
+    _ As vve are affected to the poore, so is Christe to vs.
 
-1. Godly pouertie is to be relieued.
+    _ Godly pouertie is to be relieued.
 
-1. Pouertie better then ill gotten riches.
+    _ Pouertie better then ill gotten riches.
 
-1. A seruaunt is a felovve seruaunt.
+    _ A seruaunt is a felovve seruaunt.
 
-1. No shame to be a seruaunt.
+    _ No shame to be a seruaunt.
 
-1. True nobilitie.
+    _ True nobilitie.
 
-1. Christe thrists to be thristed after.
+    _ Christe thrists to be thristed after.
 
-1. Cast not alwaies to ouercome.
+    _ Cast not alwaies to ouercome.
 
-1. Some losse bringes vantage.
+    _ Some losse bringes vantage.
 
-1. Forget and forgiue.
+    _ Forget and forgiue.
 
-1. In iniuries call to minde Christe his passion.
+    _ In iniuries call to minde Christe his passion.
 
-1. The chastning of thy body is a medicine for vice.
+    _ The chastning of thy body is a medicine for vice.
 
-1. Sweare not.
+    _ Sweare not.
 
-1. The summe of the lawe is charitie, and Christe his passion.
+    _ The summe of the lawe is charitie, and Christe his passion.
 
-1. A deare frende is a deare treasure.
+    _ A deare frende is a deare treasure.
 
-1. Counsailers are necessary.
+    _ Counsailers are necessary.
 
-1. Backbiting, shamefastnesse.
+    _ Backbiting, shamefastnesse.
 
-1. Good companie.
+    _ Good companie.
 
-1. Frutes of fooes.
+    _ Frutes of fooes.
 
-1. Pacience breakes enuie.
+    _ Pacience breakes enuie.
 
-1. The measure of bounty.
+    _ The measure of bounty.
 
-1. Blame our selues, not the deuill.
+    _ Blame our selues, not the deuill.
 
-1. Dreames vaine.
+    _ Dreames vaine.
 
-1. Hope the beste.
+    _ Hope the beste.
 
-1. Learning and vvisedome.
+    _ Learning and vvisedome.
 
-1. Stoutenesse, and courage.
+    _ Stoutenesse, and courage.
 
-1. An olde man vvithout vvitte, a younge vvithout courage.
+    _ An olde man vvithout vvitte, a younge vvithout courage.
 
-1. VVorke and vvatche.
+    _ VVorke and vvatche.
 
-1. VVisedome better then riches.
+    _ VVisedome better then riches.
 
-1. VVe deny God tvvo vvayes.
+    _ VVe deny God tvvo vvayes.
 
-1. A good beginning, a good endir
+1. Against the Arians, Hipocrites, and disceuers.
 
-1. Constancy is crowned.
+1. The othe of Nazensen being made Bishoppe.
 
-1. Hie speakinge.
+1. A spirituall dompe.
 
-1. Vse and Abuse.
+1. A praier against Iulianus.
 
-1. Vaine glorie.
+1. Mariage, Redemption, •eape iudgments of God.
 
-1. Continuaunce.
+1. Of his busye and wordly affayers.
 
-1. Laughter, anger, babling
+1. From Egipt and Babilon to the holie Lande.
 
-1. Dutie to God, parents, preists▪ and Elders.
+1. From Sodome to the mounte,
 
-1. Parentes and Children.
+1. Conflict of fleshe and spirit
 
-1. Suche like.
+1. A brething to God.
 
-1. Proportion.
+1. The world vyolent.
 
-1. The tounge.
+1. Better to dye, or to lyue.
 
-1. Language.
+1. Vnlodge the deuill.
 
-1. Haples frindles.
+1. Mortifying.
 
-1. Drunkennes.
+1. The felicitie of a Christian is Christ.
 
-1. VVynde.
+1. The life miserable, and synne vnquyet.
 
-1. A fat belly, a leane vvitt.
+1. The vanitie of this lyef A passage vnto God.
 
-1. Thriftye dyet.
+1. The knovvlege of the Trynitie is blesfulnesse:
 
-1. Fooles wise,
+1. A prayer for quiet death.
 
-1. Baronnes.
+1. Finall repentaunce All is vanitie.
 
-1. A milking sheparde.
+1. A repulse to the deuill A passage to heauen A Farewell to the worlde
+A good beginning, a good endirThat eche good acte thats well begonneDoth luckely fall out,That doth 
+    _ A good beginning, a good endir
 
-1. Order.
+    _ Constancy is crowned.
 
-1. Order.
+    _ Hie speakinge.
 
-1. Order.
+    _ Vse and Abuse.
 
-1. Man, death.
+    _ Vaine glorie.
 
-1. The good feare not.
+    _ Continuaunce.
 
-1. VVisdome vanquisheth.
+    _ Laughter, anger, babling
 
-1. Perseueraunce.
+    _ Dutie to God, parents, preists▪ and Elders.
 
-1. VVisdome is stronge.
+    _ Parentes and Children.
 
-1. Bugges fraye fooles.
+    _ Suche like.
 
-1. The poore giuing.
+    _ Proportion.
 
-1. The lavvyer
+    _ The tounge.
 
-1. The Tutour of the Fatherles.
+    _ Language.
 
-1. The sentence not the vvordes.
+    _ Haples frindles.
 
-1. Diuersitie.
+    _ Drunkennes.
 
-1. Instruction of fooles.
+    _ VVynde.
 
-1. Chastninge.
+    _ A fat belly, a leane vvitt.
 
-1. An othe
+    _ Thriftye dyet.
 
-1. Treasure.
+    _ Fooles wise,
 
-1. Short pleysure.
+    _ Baronnes.
 
-1. Pleasure chaungable.
+    _ A milking sheparde.
 
-1. Shamefastnesse in vvomen.
+    _ Order.
 
-1. Helth.
+    _ Order.
 
-1. Bablinge.
+    _ Order.
 
-1. Bribes.
+    _ Man, death.
 
-1. A sadd spirit.
+    _ The good feare not.
 
-1. Riches.
+    _ VVisdome vanquisheth.
 
-1. Frendeshyp.
+    _ Perseueraunce.
 
-1. Care.
+    _ VVisdome is stronge.
 
-1. Temperance in aboundance.
+    _ Bugges fraye fooles.
 
-1. VVyne.
+    _ The poore giuing.
 
-1. Feare of iudgement.
+    _ The lavvyer
 
-1. Affliction to affliction.
+    _ The Tutour of the Fatherles.
 
-1. Lastinge glorie.
+    _ The sentence not the vvordes.
 
-1. Anger an il counsailer.
+    _ Diuersitie.
 
-1. Ill vvomen.
+    _ Instruction of fooles.
 
-1. Marke the ende.
+    _ Chastninge.
 
-1. Suche father suche child.
+    _ An othe
 
-1. Like of like.
+    _ Treasure.
 
-1. Beauty and Pittie.
+    _ Short pleysure.
 
-1. Gods blessyng.
+    _ Pleasure chaungable.
 
-1. Order and povver.
+    _ Shamefastnesse in vvomen.
 
-1. Dreading, and melling,
+    _ Helth.
 
-1. The lavve of like.
+    _ Bablinge.
 
-1. The stout are gloriouse.
+    _ Bribes.
 
-1. Dreames.
+    _ A sadd spirit.
 
-1. Handling of rebelles.
+    _ Riches.
 
-1. The people a beast of many heads.
+    _ Frendeshyp.
 
-1. An ydle worke.
+    _ Care.
 
-1. Gould a Rethorician.
+    _ Temperance in aboundance.
 
-1. VVorldly peace.
+    _ VVyne.
 
-1. Frinde and fooe.
+    _ Feare of iudgement.
 
-1. Light shipping.
+    _ Affliction to affliction.
 
-1. Musing of death.
+    _ Lastinge glorie.
 
-1. The mynd a Temple.
+    _ Anger an il counsailer.
 
-1. Knowe thy selfe.
+    _ Ill vvomen.
 
-1. The steadfast mynde.
+    _ Marke the ende.
 
-1. Vanyties.
+    _ Suche father suche child.
 
-1. Deades and woordes.
+    _ Like of like.
 
-1. Hooly orders, reliques.
+    _ Beauty and Pittie.
 
-1. The path of vertue.
+    _ Gods blessyng.
 
-1. Of sevnge: The stepps of the deuill.
+    _ Order and povver.
 
-1. The sicke man feleth not.
+    _ Dreading, and melling,
 
-1. VVordes and vvorkes.
+    _ The lavve of like.
 
-1. Idlenes.
+    _ The stout are gloriouse.
 
-1. Treasure standing.
+    _ Dreames.
 
-1. Vertue passing.
+    _ Handling of rebelles.
 
-1. Faith.
+    _ The people a beast of many heads.
 
-1. The meane.
+    _ An ydle worke.
 
-1. Bouldnesse vvith discretion.
+    _ Gould a Rethorician.
 
-1. Lavve and Lavvyer.
+    _ VVorldly peace.
 
-1. Please and displease.
+    _ Frinde and fooe.
 
-1. VVary in praysing.
+    _ Light shipping.
 
-1. Duresse trieth.
+    _ Musing of death.
 
-1. Denying of Father.
+    _ The mynd a Temple.
 
-1. A good name a good possession.
+    _ Knowe thy selfe.
 
-1. Spare straungers, and the dead.
+    _ The steadfast mynde.
 
-1. An other life.
+    _ Vanyties.
 
-1. The Trinitie, the fountaine.
+    _ Deades and woordes.
+
+    _ Hooly orders, reliques.
+
+    _ The path of vertue.
+
+    _ Of sevnge: The stepps of the deuill.
+
+    _ The sicke man feleth not.
+
+    _ VVordes and vvorkes.
+
+    _ Idlenes.
+
+    _ Treasure standing.
+
+    _ Vertue passing.
+
+    _ Faith.
+
+    _ The meane.
+
+    _ Bouldnesse vvith discretion.
+
+    _ Lavve and Lavvyer.
+
+    _ Please and displease.
+
+    _ VVary in praysing.
+
+    _ Duresse trieth.
+
+    _ Denying of Father.
+
+    _ A good name a good possession.
+
+    _ Spare straungers, and the dead.
+
+    _ An other life.
+
+    _ The Trinitie, the fountaine.
+
+1. Mans life.
+
+1. A christian life.
 
 **Types of content**
 
